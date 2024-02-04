@@ -1,3 +1,4 @@
 # bpapiernik.github.io
 
-## [Felix Visualization.pdf](https://github.com/bpapiernik/bpapiernik.github.io/files/14155206/Felix.Visualization.pdf)
+## ![Capture](https://github.com/bpapiernik/bpapiernik.github.io/assets/135991331/71618eb8-e37e-4c17-8165-02cd59cd6f9e)
+
